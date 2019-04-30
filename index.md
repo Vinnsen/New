@@ -3,5 +3,11 @@
 
 格式：微信号 / 更新日期  
 
+L  
+[**LYKshizhizhu595**](LYKshizhizhu595.md) / 04-30  
+
+X  
+[**xiaorui12580**](xiaorui12580.md) / 04-30  
+
 Z  
 [**zhu13484223537**](zhu13484223537.md) / 04-30  
